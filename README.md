@@ -1,3 +1,8 @@
+https://github.com/ull-mfp-aet-2324-alu0101052274
+https://classroom.github.com/classrooms/149102133-ull-mfp-aet-2324-alu0101052274/assignments/makecode-assignment
+https://classroom.github.com/classrooms/149102133-ull-mfp-aet-2324-alu0101052274
+
+
  
 
 
